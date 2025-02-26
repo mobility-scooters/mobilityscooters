@@ -1,5 +1,5 @@
 # Thrive Mobility Scooters
-At Thrive Mobility, we specialize in high-quality Mobility Scooters Adelaide residents trust for independence and comfort. Whether you need a new electric mobility scooter, a lightweight travel **[Mobility Scooters]([URL](https://thrivemobility.au/mobility-scooters-adelaide-locations/))**, or a reliable used mobility scooter, we have the perfect solution to match your lifestyle.
+At Thrive Mobility, we specialize in high-quality Mobility Scooters Adelaide residents trust for independence and comfort. Whether you need a new electric mobility scooter, a lightweight travel **[Mobility Scooters]([URL](https://thrivemobility.au/mobility-scooters-adelaide-locations/)**, or a reliable used mobility scooter, we have the perfect solution to match your lifestyle.
 
 Looking for affordable options? Our range of Second Hand Mobility Scooters Adelaide ensures you get top-quality scooters at budget-friendly prices. We also offer expert Mobility Scooter Repairs Adelaide services to keep your scooter in peak condition.
 
